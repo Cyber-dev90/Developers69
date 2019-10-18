@@ -1,2 +1,0 @@
-# Developers69
-Hay
